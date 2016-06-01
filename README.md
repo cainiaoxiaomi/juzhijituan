@@ -1,2 +1,0 @@
-# juzhijituan
-yuandiwenhua
